@@ -1,2 +1,2 @@
 # fanfiction
-同人文
+fan fiction
